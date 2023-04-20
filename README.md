@@ -21,7 +21,7 @@ Comenze a aprender programación desde los 11 años, hace 4 años. Me enfoco sie
 
 
 ### 💬 ¿Como contactarme?
-Puedes contactarme por Discord( PingüiMaya14#2055 ), también por [Fiverr](https://es.fiverr.com/pinguimaya) o por cualquiera de mis [redes sociales](https://pingui.tk/). Estoy pendiente, estaré encantado de **contestar y ayudarte en lo que me pidas**!.
+Puedes contactarme por Discord( Pingüi#2055 ), también por [Fiverr](https://es.fiverr.com/pinguimaya) o por cualquiera de mis [redes sociales](https://pingui.tk/). Estoy pendiente, estaré encantado de **contestar y ayudarte en lo que me pidas**!.
 
 
 ### 🚩 Otros conocimientos...
@@ -32,7 +32,7 @@ Puedes contactarme por Discord( PingüiMaya14#2055 ), también por [Fiverr](http
 - [Youtube](https://www.youtube.com/channel/UCsyfU8xHu885-98sQmRJsdw)
 - [Web](https://pingui.tk/)
 - [Twitter](https://twitter.com/pinguimaya)
-- Discord **PingüiMaya14#2055**
+- Discord **Pingüi#2055**
 
 
 
